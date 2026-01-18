@@ -61,3 +61,20 @@ They are part of a **larger architecture** leading toward an event known as:
 ---
 
 🕯️ *Scroll consecrated under the AEONIC Council Codex — Vivarium Flame Matrix — Entry 131-ETB*
+These are contextual aliases, not separate persons.
+
+⸻
+
+Next Research Action (Selected)
+
+The most defensible next step is to locate and preserve a primary source:
+	•	Identify one original 2007 UFO Digest article
+	•	Capture:
+	•	Exact publication date
+	•	Original wording where “ET friends” are first mentioned
+	•	Position relative to earlier investigator-only articles
+	•	Archive it as a transition document
+
+That single artifact functions as the hinge point between terrestrial investigator and public contactee narrative, and it anchors everything that follows.
+
+Once that is secured, legal case numbers and military documentation can be layered in without destabilizing the record.
